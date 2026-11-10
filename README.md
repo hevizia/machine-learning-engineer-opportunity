@@ -68,3 +68,8 @@ Ready for your next challenge?
 
 If you're passionate about building and scaling production machine learning systems, deploying AI solutions that deliver real-world impact, and working at the intersection of predictive models, Generative AI, and modern MLOps practices, we'd love to hear from you.
 
+Apply here:
+
+a.hevizi@tesserogroup.com
+
+www.linkedin.com/in/adorján-hévizi-3016b4393
